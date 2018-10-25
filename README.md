@@ -1,2 +1,3 @@
 # Hello-World
 a....thing, is born.....
+a thing with little knowladge and much yet to learn. but a thing that wishes to learn and create.
